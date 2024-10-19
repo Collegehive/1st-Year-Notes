@@ -1,0 +1,1 @@
+# NW Corner Rule
