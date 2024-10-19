@@ -1,1 +1,0 @@
-# Behavioral Perspective Managerial Grid

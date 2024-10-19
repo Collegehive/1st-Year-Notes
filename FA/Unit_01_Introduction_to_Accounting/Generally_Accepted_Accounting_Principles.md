@@ -1,1 +1,0 @@
-# Generally Accepted Accounting Principles

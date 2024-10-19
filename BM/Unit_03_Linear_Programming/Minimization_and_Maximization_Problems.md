@@ -1,1 +1,0 @@
-# Minimization and Maximization Problems

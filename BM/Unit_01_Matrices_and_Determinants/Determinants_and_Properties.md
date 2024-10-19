@@ -1,1 +1,0 @@
-# Determinants and Properties

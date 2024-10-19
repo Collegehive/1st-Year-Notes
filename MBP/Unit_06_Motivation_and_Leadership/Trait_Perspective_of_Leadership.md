@@ -1,1 +1,0 @@
-# Trait Perspective of Leadership

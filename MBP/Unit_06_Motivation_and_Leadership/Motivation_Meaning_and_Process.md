@@ -1,1 +1,0 @@
-# Motivation Meaning and Process

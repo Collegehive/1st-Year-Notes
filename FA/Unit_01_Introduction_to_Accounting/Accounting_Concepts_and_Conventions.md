@@ -1,1 +1,0 @@
-# Accounting Concepts and Conventions

@@ -1,1 +1,0 @@
-# Preparation of Trading Account

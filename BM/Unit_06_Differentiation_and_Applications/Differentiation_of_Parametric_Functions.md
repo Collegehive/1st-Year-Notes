@@ -1,1 +1,0 @@
-# Differentiation of Parametric Functions

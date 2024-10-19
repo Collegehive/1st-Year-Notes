@@ -1,1 +1,0 @@
-# Threats to Group Effectiveness

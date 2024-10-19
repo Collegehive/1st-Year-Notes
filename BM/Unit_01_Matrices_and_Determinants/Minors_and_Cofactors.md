@@ -1,1 +1,0 @@
-# Minors and Cofactors

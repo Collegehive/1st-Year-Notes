@@ -1,1 +1,0 @@
-# Personality Meaning and determinants

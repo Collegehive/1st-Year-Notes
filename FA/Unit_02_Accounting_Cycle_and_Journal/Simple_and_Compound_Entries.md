@@ -1,1 +1,0 @@
-# Simple and Compound Entries

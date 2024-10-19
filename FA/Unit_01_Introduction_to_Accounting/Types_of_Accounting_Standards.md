@@ -1,1 +1,0 @@
-# Types of Accounting Standards

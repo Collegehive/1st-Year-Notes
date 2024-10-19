@@ -1,1 +1,0 @@
-# Classical Management Theories

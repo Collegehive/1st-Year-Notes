@@ -1,1 +1,0 @@
-# Organizing Nature and purpose

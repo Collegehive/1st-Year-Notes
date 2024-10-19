@@ -1,1 +1,0 @@
-# Capital and Revenue Receipts

@@ -1,1 +1,0 @@
-# Learning Organizational Culture

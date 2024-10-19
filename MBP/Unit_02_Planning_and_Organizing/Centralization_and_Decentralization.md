@@ -1,1 +1,0 @@
-# Centralization and Decentralization

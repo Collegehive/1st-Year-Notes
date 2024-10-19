@@ -1,1 +1,0 @@
-# Management By Objective
